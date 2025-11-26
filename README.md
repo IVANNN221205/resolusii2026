@@ -1,0 +1,1 @@
+# resolusii2026
